@@ -11,7 +11,7 @@
 ‎ 
 <div align="center">
 
-<img src="https://i.postimg.cc/SQPdrpFY/pony-town-w-stand-padded-12x.png" width="250">
+<img src="https://i.postimg.cc/7YY7WkGR/image-removebg-preview-34.png" width="390">
 </div>
 
 <div align="center">
